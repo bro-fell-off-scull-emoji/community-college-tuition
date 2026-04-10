@@ -1,0 +1,1 @@
+Founded by kael, this is a big project designed for students and employees who dont want to work, allowing many games, apps, movies, and lots more to keep them entertained. It also has lots of other links for other sites, and is going to be open source soon I hope
